@@ -1,11 +1,14 @@
 # Glow - Ứng dụng đặt massage Việt Nam
 Đặt massage, spa, fitness 24/7. Trải nghiệm riêng tư, đẳng cấp xứng tầm.
+
 ✅ Glow là ứng dụng giúp bạn dễ dàng đặt lịch massage, spa, fitness tại nhà chỉ với vài thao tác – nhanh chóng, tiện lợi và bảo mật tuyệt đối.
+
 ✅ Bên cạnh dịch vụ tại nhà, bạn còn có thể trải nghiệm chăm sóc sức khỏe – làm đẹp – thể chất tại hơn 500 địa điểm liên kết với Glow trên toàn quốc.
 
 Glow mang đến một hành trình chăm sóc bản thân cá nhân hóa – linh hoạt – tiện lợi, phù hợp với nhịp sống hiện đại. Dù bạn đang ở nhà, công ty hay đang công tác xa, Glow luôn sẵn sàng phục vụ – mọi lúc, mọi nơi.
 
 📍 Hiện tại, Glow đã có mặt tại 5 thành phố lớn:
+
 Hà Nội – TP. Hồ Chí Minh – Đà Nẵng – Bắc Ninh – Nha Trang, và sẽ tiếp tục mở rộng để phục vụ bạn tốt hơn.
 ✅ Hà Nội: [Glow massage tại nhà Hà Nội](https://glowvietnam.com/vi/massage-tai-nha-ha-noi)
 ✅ TP. Hồ Chí Minh: [Glow massage tại nhà TP. Hồ Chí Minh](https://glowvietnam.com/vi/massage-tai-nha-tphcm)
