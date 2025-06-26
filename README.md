@@ -21,9 +21,7 @@ Hà Nội – TP. Hồ Chí Minh – Đà Nẵng – Bắc Ninh – Nha Trang, v
 
 ✅ Nha Trang: [Glow massage tại nhà Nha Trang](https://glowvietnam.com/vi/massage-tai-nha-nha-trang-khanh-hoa)
 
-👉 Tải app Glow ngay hôm nay để bắt đầu trải nghiệm!
-
-[Glow app massage tại nhà](https://glowvietnam.com/)
+👉 Tải app Glow ngay hôm nay để bắt đầu trải nghiệm! [Glow app massage tại nhà](https://glowvietnam.com/)
 
 # Glow – Vietnam’s Leading Home Massage Booking App
 Book massage, spa, and fitness services 24/7. Enjoy premium and private experiences.
